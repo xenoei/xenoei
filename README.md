@@ -1,6 +1,5 @@
 Hello
 
-♦ Languages
-   ♦ Learning Python 
+Learning Python
 
-♦ Beginner with very little knowledge.
+my socials are vip#1000 and @xenoei on instagram
